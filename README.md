@@ -5,5 +5,3 @@ Time tracker
 
 Good Night Students!!!
 well done Mr Khan
-made second change
-nade new change
